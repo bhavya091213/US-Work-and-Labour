@@ -117,4 +117,111 @@ Week3.md
   - Overcrowding
   - Branding
   - Inhumnane conditions
-- 
+- Door of No return
+  - Losing homes
+  - Economic freedom
+
+
+
+---
+
+## CLASS NOTES
+- 1781: declaration of independene, york town
+  - Still attatched to transatlantic slave trade
+- Sharpe and Equinao 
+  - Sharpe quaker
+  - bought Equiano gave education
+- The first judge says its a contract and the payment must happen
+- Judge mensfield said the case hadd nothing to do with enlish common law
+  - Egnlish common law
+  - Court precedence
+---
+Essay First Draft
+- Body Paragraph 1
+  - Dehumanization
+  - Justifications
+
+
+- Body Paragraph 2
+
+
+
+- Prompt:
+  - How and why did this transformation occur? For instance, the Zone Massacre and other historical examples highlight the argument that reparations should be paid to individuals, families, and communities who were traumatized and exploited by labor systems such as indentured servitude, the slave practices established after 1492, and the slave labor codes of the mid-1600s.
+
+
+
+--- 
+# Slavery
+- Nothing to do with the man anymore
+- Depends on woman if she is free or enslaved
+  - The burden is on the mother
+
+
+> **Assertion:** *Reparations should be pursued for slavery and colonial labor exploitation, but they can never truly compensate for the immense damage, trauma, and generational inequality caused.*
+
+---
+
+## Body Paragraph 1 — Dehumanization & Lasting Trauma
+
+**Topic Sentence:**
+The scale of dehumanization during the transatlantic slave trade shows why reparations are necessary, but also why they can never fully repair the destruction.
+
+**Evidence from notes:**
+
+* **Equiano & Florence Hall**: Descriptions of despair, sickness, chains, nakedness, and fear of being eaten highlight total loss of dignity.
+* **Zong Massacre (1781)**: More than 130 Africans thrown overboard for insurance money shows how enslaved people were treated as *cargo*, not humans.
+* **Legal structures**: Slave codes and papal bulls (Nicholas V) provided institutional justification, embedding racism in law and religion.
+
+**Analysis / Link to Assertion:**
+These examples reveal the **depth of trauma**—people were reduced to objects, families torn apart, and communities destroyed. Reparations can acknowledge this injustice, but **no financial or political settlement** can fully undo centuries of systemic dehumanization and cultural loss.
+
+---
+
+## Body Paragraph 2 — Exploitation of Labor & Ongoing Inequality
+
+**Topic Sentence:**
+The extraction of wealth from enslaved peoples’ labor, and later from Indigenous and child workers, created economic inequalities so large that reparations cannot fully erase them.
+
+**Evidence from notes:**
+
+* **Rise of Sugar & Triangular Trade**: Slavery fueled European wealth and nation-state growth at the expense of African and Indigenous lives.
+* **Cerro Rico child miners (modern Bolivia)**: Less than \$2.50/day, silicosis, and lack of protection show continuity of exploitative labor systems tied to global demand.
+* **Slavery to Mass Incarceration (video)**: Even after abolition, systems like Jim Crow and mass incarceration targeted Black populations, ensuring inequality persisted.
+
+**Analysis / Link to Assertion:**
+Labor exploitation not only enriched empires and corporations but also left descendants of enslaved people trapped in cycles of poverty and discrimination. Reparations can fund programs to address education, housing, and health gaps, but **they cannot fully close centuries-long wealth disparities** or restore the lives lost.
+
+---
+
+
+## Video Notes - 60 minutes
+- Flotilda in the video
+- Improting new slaves outlawed in 1808
+- Purchasing captives with 9000 in gold merchandise
+  - Then Flotilla was burned and sank
+---
+
+- Question 3 
+  - How did the economic motivations underlying the Zong Massacre reveal the broader systemic corruption inherent in the transatlantic slave trade
+    - Prioritized money over human lies -> Lack of legal support for justice
+    - Showed how dehuminzation was allowed just to make a quick buck
+    - Economy was tied to the life system
+    - Overlook the humane side for economic gains
+  - What historical and structural parallels exist between the Zong MAssacre and contemporary instances of systemic exploitation wihtin global trade and industries?
+    - Modern Day bolivian stuff
+      - Labourorers are jsut a labour cost - no regards for safety
+    - Stuff like sweatshops and child labour in asian countries like China
+    - Lower class workers get treated jsut like a cost
+    - Governmetn overlooks
+    - Corruption
+    - Highway was built right on the town
+    - Native americans: US government took over their land to expadn westward
+
+---
+
+### ESSAY Q 1
+- Essay Question:
+  - “Evaluate how economic motivations shaped systems of labor exploitation from the transatlantic slave trade through modern examples such as Bolivian child miners. To what extent do these cases reveal continuity in the prioritization of profit over human life?”
+- Personal one
+  - "Compare how dehumanization was justified during the transatlantic slave trade with how it is rationalized in modern exploitative labor systems, such as child mining in Bolivia. In what ways do these justifications reveal both change and continuity in global labor exploitation?"
