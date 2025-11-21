@@ -78,3 +78,6 @@ Week7.md
 
     > “One group which did have access to power gained and one group which was denied power lost.”
     > The Trail of Tears shows that **moral awareness existed** yet was ignored—making it both a warning and a precedent about the abuse of power.
+
+
+The Trail of Tears video it shows that many people in the 1830s understood that the Cherokee removal was unconstitutional, illegal, and morally wrong but  yet it happened anyway. What does this reveal about power, law, and minority rights in the United States during this period? 
